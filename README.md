@@ -1,1 +1,1 @@
-# 1C-GitHub
+# Victor Hugo Pereira de Araujo
